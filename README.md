@@ -9,9 +9,6 @@ https://columbiauniversity.zoom.us/j/96436480169?pwd=dHZPZzFRcXdJblR3RDRLeW85aWN
 
 Anonymous feedback form: https://forms.gle/RUm3QRF4AbA7KzjDA
 
-Let me know if you want me to cover any specific topic or give any feedbacks on recitations. 
-
-
 
 
 
